@@ -20,6 +20,10 @@ Dale Pryce was still in the cab.
 
 Michelle's car struck the tanker first, on the passenger side. The second car hit moments later, from the opposite direction. The tanker ruptured. Quantum Spin Liquid spread across three lanes of highway.
 
+## Car Three
+
+A third vehicle — a northbound car driven by Nadia Vasquez, a construction worker heading home after a night shift — was close enough behind Car Two that she could not stop in time. She did not strike the tanker directly. She drove into the spill. The Quantum Spin Liquid covered the front of her car and reached her through the windshield. She pulled over onto the shoulder. She helped where she could until the paramedics arrived. Nobody at the scene knew yet what the compound was or what it would do.
+
 ---
 
 ## Abigail Rodriguez

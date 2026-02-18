@@ -25,7 +25,7 @@ A working timeline for the Therapy universe. Not every beat is fully canonized. 
 - Quantum Spin Liquid exposure begins the process of granting powers to Michelle (Privacy), Diana (Dangerous), Jackson (Xscape), Trinity (Silenced Wren), Majo, Sarah (Twilight), and eventually Alexander (Lectric).
 - Dale Pryce, the driver, is doused in the compound and develops no powers. He leaves Apex Haul within the month.
 - The Crash Site becomes an anomalous zone due to residual Quantum Spin Liquid.
-- Nadia Vasquez (Glasswork), driving one of the cars, develops her powers in the following weeks.
+- Nadia Vasquez (Hardwire), whose car drove into the Quantum Spin Liquid spill while traveling northbound behind Car Two, develops her powers in the following weeks.
 - Marcus Webb (Threshold), a first responder at the scene, is exposed to residual compound and develops his powers.
 
 ## Year One: Aftermath
@@ -57,7 +57,7 @@ A working timeline for the Therapy universe. Not every beat is fully canonized. 
 
 ## Ongoing / Open Questions
 
-- Glasswork and Threshold continue to navigate their powers independently. Neither has declared a side. Both are watching.
+- Hardwire and Threshold continue to navigate their powers independently. Neither has declared a side. Both are watching.
 - Meridian BioSciences is conducting quiet research on the Crash survivors without their knowledge. [?] What have they found? What do they intend to do with it?
 - The Crash Site's anomalies are worsening. [?] What is the residual Quantum Spin Liquid doing to the area over time?
 - Sarah Florence remains at large. Her psychosis is deepening. Her connection to Abigail through her necromancy is unresolved. [?] Is what she summons Abigail? Does it matter?

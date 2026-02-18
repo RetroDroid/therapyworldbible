@@ -10,6 +10,6 @@ He still works as a paramedic. He is very good at it. The job gives him a struct
 
 He volunteers at a crisis line on his days off. He says it uses the same skills: staying calm, being the voice on the other end of something terrible, not needing the person to be okay right now, just needing them to still be there.
 
-He goes to the Crash Site sometimes. He met Glasswork there. They share the particular solidarity of people whose lives were changed by the same event and who don't want to be heroes about it.
+He goes to the Crash Site sometimes. He met Hardwire there. They share the particular solidarity of people whose lives were changed by the same event and who don't want to be heroes about it.
 
 He is undeclared. He is watching. He hasn't decided yet, and he takes that seriously.
