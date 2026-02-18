@@ -14,4 +14,6 @@ She is in therapy because her relationship to time, mortality, and attachment is
 
 She cannot have children. This is not a wound exactly — it is structural, woven into the same genetic and mystical anomaly that makes her what she is. Whatever she is. Her powers preclude it in ways that neither science nor magic has been able to work around, because the anomaly is both at once and inextricably so. She has known this for a very long time. She knows it differently now, in the context of loving Majo, which is the cruelest timing possible and also the only timing that was ever going to make it mean something new.
 
+She has not had bottom surgery. This is not a simple thing and she does not explain it simply. Part of it is hope — irrational, unkillable, the same hope that has kept her going through centuries of loss — that someday the anomaly might shift, that someday the structural might become the merely difficult, that someday the door she has always understood to be closed might turn out to have only been stuck. She does not expect this. She does not pretend to expect it. But she has not closed it herself, and she is not sure she will.
+
 She is Rock Woman's fiancée and eventual wife to Majo Majima.
