@@ -1,3 +1,5 @@
+# Rock Woman
+
 Rock Woman, Alice Brown, is a magical being who recently changed her form to a woman. She is an old being — how old is a matter of some debate, including with herself.
 
 Her memories work in reverse order of recency. She can recall the Pleistocene with perfect clarity: the weight of glaciers, the particular silence of a world without cities. She remembers the Roman Empire, the Black Death, the colonial period — all of it sharp and detailed. What she cannot always remember is a conversation she had last Tuesday. The atrophy of her once-great intellect works strangely across deep time, and the most recent layers are always the most worn. She writes things down now. She has notebooks she doesn't always remember keeping.

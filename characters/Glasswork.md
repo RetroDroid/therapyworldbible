@@ -1,3 +1,5 @@
+# Glasswork
+
 Glasswork, real name Nadia Vasquez, is a 31-year-old construction site manager who was driving one of the two cars involved in the Crash. She had just finished a night shift and was driving home. She was not part of any heroic or villainous world before or after the Crash, and she would like very much to return to not being part of it.
 
 The Quantum Spin Liquid gave her the ability to transmute any solid material into glass and back, at will. She can shape the glass as it forms — smooth it into barriers, draw it into filaments, fracture it into shards that move at her direction. On a good day it is genuinely beautiful. On a bad day she has no control over it at all.

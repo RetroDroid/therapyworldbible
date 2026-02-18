@@ -1,3 +1,5 @@
+# The Gander
+
 The Gander is Andrew Wolfe's aerial fortress — a large, custom-engineered craft that maintains a fixed hover altitude above Greenville, cloaked from radar and from naked-eye observation by a light-bending system Andrew engineered over three years of increasingly expensive iteration. It is, by most measures, the most technically impressive thing he has built. He is privately proud of this in a way he would never say out loud.
 
 The name comes from Andrew's mother, who called him her "little gander" when he was a child. He has not explained this to anyone. He will not.

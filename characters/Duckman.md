@@ -1,3 +1,5 @@
+# Duckman
+
 Duckman is Andrew Wolfe, heir to Wolfe Holdings — a Midwestern conglomerate his grandfather built from manufacturing contracts and real estate. Andrew has never been interested in running the company beyond what it funds. He has a board for that.
 
 His parents were killed on his thirteenth birthday during a robbery at a Greenville restaurant. The investigation later revealed the robbery was orchestrated by a crime organization with deep roots in the city's underfunded neighborhoods — a place where people took desperate options because no other options existed. Andrew did not miss this detail. He has spent his adult life uncertain whether he is a hero or someone who needs to feel like one.

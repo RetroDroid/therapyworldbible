@@ -1,3 +1,5 @@
+# Quantum Spin Liquid
+
 Quantum Spin Liquid is a compound synthesized by Meridian BioSciences as part of a classified research program into quantum-state matter. In its natural form it is an iridescent, viscous fluid — it shifts color continuously based on ambient electromagnetic fields, cycling through the visible spectrum in a way that is difficult to look at for long. It is stable under controlled laboratory conditions. It is violently unstable under sudden impact.
 
 The science behind it is, even by the standards of the Therapy universe, not fully understood. Meridian BioSciences was working at the edge of what quantum chemistry can explain. What they synthesized was a compound where matter maintained a superposition of physical states — solid, liquid, energetic — held in temporary equilibrium by the carrier fluid. Under normal circumstances it held. Under the force of a highway collision at speed, it did not.

@@ -1,3 +1,5 @@
+# Detroit
+
 Detroit is home to both Mosquito Man and Red Lightning, a coincidence that causes more friction than either would prefer and more cooperation than either would admit.
 
 The city is large enough for both of them. They operate at different scales — Red Lightning works fast and city-wide, while Mosquito Man works at street level in specific neighborhoods — and they have developed an unofficial understanding about territory that neither of them has put into words. They cross paths. They have argued. They have also, on at least three occasions, worked together on incidents that required more than one person. These occasions are not discussed.

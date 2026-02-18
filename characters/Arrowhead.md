@@ -1,3 +1,5 @@
+# Arrowhead
+
 Arrowhead is Jo Youngman, a 27-year-old Native American genderfluid individual and member of the Justice Alliance. Prior aliases include Red Arrow, Pink Arrow, Light, and Fletching — a progression that tracked closely with their evolving understanding of their own gender identity. Each name felt right at the time and not quite right enough to keep.
 
 Jo grew up on a reservation in Oklahoma and relocated in their early twenties to compete at the national level in archery. Their competitive career funds their heroics: sponsorships, prize money, and the occasional appearance fee cover equipment and travel without them having to answer uncomfortable questions about where the money goes.

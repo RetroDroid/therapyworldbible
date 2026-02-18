@@ -1,3 +1,5 @@
+# Dr. Petra Okafor
+
 Dr. Petra Okafor is a 48-year-old Nigerian-American psychiatrist and licensed trauma therapist. She holds degrees from Johns Hopkins and completed her residency specializing in dissociative disorders and complex PTSD. She runs individual sessions with the members of Therapy and facilitates their group sessions at the Meridian Center for Psychological Wellness.
 
 She is not superpowered. She has known about the existence of superheroes for most of her career — she consulted for the Justice Alliance years before Therapy formed, which is how she came to work with Andrew Wolfe and, by extension, the team. She was recruited specifically because of her experience handling extraordinary trauma in people who had very few peers to compare notes with.

@@ -1,3 +1,5 @@
+# Greenville
+
 Greenville is a mid-sized city in the American Midwest, best known for its river district, its historic architecture, and its persistently underfunded public services. It has the bones of a prosperous city and the budget of one that was promised a revival that never quite came.
 
 Crime in Greenville is neither as dramatic nor as systemic as in Detroit. It's quieter — organized crime with institutional roots, petty violence that the local police handle with varying levels of competence, and occasional larger incidents that the Greenville PD is not equipped for and knows it. Duckman (Andrew Wolfe) chose to protect Greenville specifically because it is the kind of city heroes fly over on the way to somewhere more important. He is stubborn about this.

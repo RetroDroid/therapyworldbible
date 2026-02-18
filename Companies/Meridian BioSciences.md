@@ -1,3 +1,5 @@
+# Meridian BioSciences
+
 Meridian BioSciences is a pharmaceutical research company that commissioned the transport of Quantum Spin Liquid in the weeks before the Crash. They were synthesizing the compound as part of a classified internal research program studying quantum-state interactions with biological tissue — specifically, whether stable quantum matter could be introduced into cellular processes to produce targeted therapeutic effects.
 
 Their findings, at the time of the Crash, were inconclusive. The compound behaved unpredictably in controlled laboratory conditions. They had not yet tested it on living subjects. They were transporting it to a partner facility where that phase of testing was scheduled to begin.

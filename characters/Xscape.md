@@ -1,1 +1,3 @@
-Xscape: Jackson MacDuffie, a teenage boy, Privacy's son. He joins his mom in therapy. He is a teleporter, and leaves burn residue in the shape of an x if confined, his powers cause him a level of distress and he sees alternate realities all the time.  Before joining Therapy, Jackson was kidnapped and treated like a slave at the hands of Diana Rice. 
+# Xscape
+
+Xscape is Jackson MacDuffie, a teenage boy and Privacy's son. He joins his mom in therapy. He is a teleporter and leaves burn residue in the shape of an X if confined. His powers cause him a level of distress and he sees alternate realities all the time. Before joining Therapy, Jackson was kidnapped and treated like a slave at the hands of Diana Rice.

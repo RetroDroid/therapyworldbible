@@ -1,3 +1,5 @@
+# Abigail Rodriguez
+
 Abigail Rodriguez was 24 years old at the time of the Crash. She did not survive it.
 
 She was a graduate student in environmental science, working on her thesis about industrial contamination in Midwestern watersheds — which is, in retrospect, a painful irony. She was warm, grounded, and fiercely loyal. She was the emotional center of her polyamorous relationship with Majo Majima and Sarah Florence: the steady presence that kept the other two from burning each other up. She and Majo argued often and lovingly about whether individual heroism mattered against systemic problems. Sarah always played referee. Nobody won those arguments. Nobody needed to.

@@ -1,3 +1,5 @@
+# Red Lightning
+
 Red Lightning is a mechanically enhanced speedster from the year 2170. At 23 years old, he ran faster than the speed of light for the first time and was propelled backward through time, arriving in the present day. He did not plan this. There is no way back that he's found yet.
 
 His real name is not publicly known — he is cautious about paradoxes, and his name is the kind of detail that could create problems. What is known: he is working with his great-great-great-grandfather James Webb, a 60-year-old retired electrician in Detroit's Corktown neighborhood, and James's granddaughter (currently 22, Red Lightning's great-great-grandmother) to build the suits that let him harness his powers safely. Family dinners are surreal. Everyone has agreed not to think about it too hard.

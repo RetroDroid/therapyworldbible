@@ -1,3 +1,5 @@
+# Apex Haul Logistics
+
 Apex Haul Logistics is a regional freight and transport company based in the Midwest. They run a standard operation: long-haul trucking, contracted delivery routes, bulk industrial transport. They are not large enough to be well-known and not small enough to be unknown. They are the kind of company that keeps the economy moving without anyone thinking much about how.
 
 At the time of the Crash, Apex held a contract with Meridian BioSciences to transport an experimental compound — Quantum Spin Liquid — across state lines. The contract specified specialized containment equipment. Apex used their standard tankers and did not flag the discrepancy. The extra containment equipment would have cost them the contract margin. Someone made that calculation. The paperwork does not say who.

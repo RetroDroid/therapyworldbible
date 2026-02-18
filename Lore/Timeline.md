@@ -1,16 +1,14 @@
+# Timeline
+
 A working timeline for the Therapy universe. Not every beat is fully canonized. Items marked with [?] are open questions.
 
----
-
-DEEP PAST
+## Deep Past
 
 - Rock Woman comes into being. The exact date is unknown, including to her. Her earliest clear memories predate recorded human civilization.
 - Rock Woman takes various forms across centuries. She is present during the Roman Empire, the Black Death, various colonial periods. She watches a great deal. She intervenes rarely.
 - Rock Woman changes her form to a woman, takes the name Alice Brown, and begins operating in the modern world as a geological consultant.
 
----
-
-BEFORE THE CRASH
+## Before the Crash
 
 - Red Lightning runs faster than the speed of light for the first time, in the year 2170, and is propelled backward through time. He arrives in the present day, landing in Detroit. He locates his great-great-great-grandfather James Webb and begins building the containment suit that makes his powers safe to use. He enters therapy shortly after arriving.
 - Mosquito Man — Mathew Whitney, 15 — is bitten by an enchanted mosquito in Detroit. He begins street-level heroics. His parents think he is in robotics club.
@@ -20,9 +18,7 @@ BEFORE THE CRASH
 - Michelle MacDuffie's music career peaks. Her son Jackson (Xscape) begins experiencing early signs of unusual spatial awareness — glimpses of alternate realities at the edges of his perception. Nobody knows what this is yet. Jackson doesn't tell anyone.
 - Majo Majima and Sarah Florence are ex-partners. They have remained close through their relationship with Abigail.
 
----
-
-YEAR ZERO: THE CRASH
+## Year Zero: The Crash
 
 - Apex Haul Logistics tanker carrying Quantum Spin Liquid stalls on the highway. Two cars collide with it at 2:17 AM.
 - Abigail Rodriguez dies on impact. She is the only fatality.
@@ -32,9 +28,7 @@ YEAR ZERO: THE CRASH
 - Nadia Vasquez (Glasswork), driving one of the cars, develops her powers in the following weeks.
 - Marcus Webb (Threshold), a first responder at the scene, is exposed to residual compound and develops his powers.
 
----
-
-YEAR ONE: AFTERMATH
+## Year One: Aftermath
 
 - Survivors begin manifesting powers. Most try to suppress or hide them.
 - Michelle's paranoia worsens with the development of her forcefield powers. Her music career begins to decline.
@@ -44,9 +38,7 @@ YEAR ONE: AFTERMATH
 - Therapy forms: Majo, Privacy, Xscape, and Silenced Wren join together. Dr. Petra Okafor begins working with the team through a referral from the Justice Alliance.
 - The Meridian Center becomes the group's therapy home.
 
----
-
-YEAR ONE TO TWO: LECTRIC'S INFILTRATION
+## Year One to Two: Lectric's Infiltration
 
 - Alexander Randall (Lectric) presents himself as an ally who gained powers from the Crash and wants to help. He is provisionally admitted to Therapy.
 - He pursues a black widow strategy targeting Rock Woman — attempting to court her with intent to marry and then defraud or kill her.
@@ -54,9 +46,7 @@ YEAR ONE TO TWO: LECTRIC'S INFILTRATION
 - He nearly takes down the Justice Alliance before being exposed.
 - He formally aligns with Dangerous and Twilight. He is now openly a villain.
 
----
-
-YEAR TWO: MAJO'S SOLO RUN
+## Year Two: Majo's Solo Run
 
 - Majo and Rock Woman develop their romantic relationship.
 - Sarah Florence (Twilight) and Diana Rice (Dangerous) form an alliance to torment Majo. Their campaign uses the summoned/constructed likeness of Abigail Rodriguez, fed through Dangerous's mind control, to assault Majo's perception of reality.
@@ -65,9 +55,7 @@ YEAR TWO: MAJO'S SOLO RUN
 - Majo loses her eye. The circumstances involve Sarah and a moment of false trust — Majo believed Sarah was rehabilitating. She was not.
 - Rock Woman and Majo become engaged.
 
----
-
-ONGOING / OPEN QUESTIONS
+## Ongoing / Open Questions
 
 - Glasswork and Threshold continue to navigate their powers independently. Neither has declared a side. Both are watching.
 - Meridian BioSciences is conducting quiet research on the Crash survivors without their knowledge. [?] What have they found? What do they intend to do with it?

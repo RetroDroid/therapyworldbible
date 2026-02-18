@@ -1,3 +1,5 @@
+# Meridian Center
+
 The Meridian Center for Psychological Wellness is a private therapy practice on the third floor of an unremarkable commercial building. The building's other tenants are a notary and an insurance adjuster who have both learned to ask no questions about the occasionally unusual people in the elevator.
 
 The waiting room has good natural light, an overcrowded plant shelf that Dr. Okafor claims she will deal with soon, and chairs spaced far enough apart for people who need not to be touched. There is no receptionist. Clients let themselves in, check a handwritten sheet by the door, and sit. The room is quiet in a way that feels deliberate.
