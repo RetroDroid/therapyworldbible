@@ -2,7 +2,7 @@
 
 Quantum Fusion is a small fashion label that designs and manufactures Therapy's field costumes. They do not design for the Justice Alliance, whose members source their own equipment independently. They do not design for anyone else. Their entire client list, as far as anyone in the public-facing industry is aware, is nonexistent — Quantum Fusion's work does not appear in fashion media, is not credited in any publication, and maintains no social presence. This is by arrangement.
 
-The label was founded by Imara Solis, a textile engineer and former competitive martial artist who approached the team after Xscape's burns destroyed three civilian garments in a single week. Her pitch was simple: she could make something that survived what they put it through. She was right.
+The label was founded by [Imara Solis](../characters/Imara%20Solis.md), a textile engineer and former competitive martial artist who approached the team after Xscape's burns destroyed three civilian garments in a single week. Her pitch was simple: she could make something that survived what they put it through. She was right.
 
 Quantum Fusion's garments are built around a proprietary fiber composite Imara developed from scratch — a material that absorbs impact, resists high-temperature transfer, and returns to its original configuration after distortion. Jackson's teleportation no longer scorches through the fabric. Majo's healing aura doesn't degrade the threads during extended use. Trinity's vibration control was the hardest design problem: the first four prototypes resonated catastrophically before Imara found a fiber weave that stayed structurally stable across frequency ranges that should, by standard textile physics, have shaken the seams apart. The fifth version holds.
 
