@@ -12,4 +12,6 @@ She is a member of the Justice Alliance. Her declining cognition is a problem sh
 
 She is in therapy because her relationship to time, mortality, and attachment is genuinely unusual. She outlives everyone she loves. She has done this many, many times. She has developed, over the centuries, very efficient mechanisms for not caring too much. She is now, for the first time in a very long time, failing to use them. She fell in love with Majo Majima, who has healing powers and who is, by some measures, the first person Alice has loved since she stopped assuming it was safe to. She allows herself to hope. Her therapist thinks this is progress. Alice is not sure hope is the same thing as safety. She is learning to sit with that.
 
+She cannot have children. This is not a wound exactly — it is structural, woven into the same genetic and mystical anomaly that makes her what she is. Whatever she is. Her powers preclude it in ways that neither science nor magic has been able to work around, because the anomaly is both at once and inextricably so. She has known this for a very long time. She knows it differently now, in the context of loving Majo, which is the cruelest timing possible and also the only timing that was ever going to make it mean something new.
+
 She is Rock Woman's fiancée and eventual wife to Majo Majima.
