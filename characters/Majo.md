@@ -36,9 +36,9 @@ It was not true. The gesture was real. The person making it was no longer fully 
 
 ---
 
-> **Content Warning: Eye Trauma**
-
-![Majo Majima](<imgs/Majo (CW: Eye Trauma).png>)
+<details>
+  <summary><b>Content Warning: Eye Trauma</b></summary>
+    <IMG src="imgs/MajoCW.png" alt="Image of Majo Majima, when she lost her eye"></details>
 
 She lost her eye. The intimacy of it is the part she does not talk about. Not the injury — injuries have a clinical simplicity that makes them easier to hold. What she does not talk about is the closeness. How well Sarah knew how to be close to her. How the geography of her trust was not something she had to teach Sarah, because Sarah had already learned it, years ago, in a different life that turned out not to be as over as either of them thought.
 

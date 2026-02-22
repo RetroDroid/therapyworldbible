@@ -12,4 +12,4 @@ She has her own therapist. She has been in supervision for twenty years. She tal
 
 She is not unaffected by what she hears. She has had nightmares. She has sat in her own therapy sessions and recounted fragments of sessions — not details, never details — just the weight of them. She finds the work meaningful in a way that hasn't diminished. She finds the group sessions in particular meaningful: eight chairs in a circle, and people who have been through genuinely extraordinary things, slowly learning to say true things to each other.
 
-She does not appear in Therapy's adventures. She holds the space that makes the adventures survivable.
+She does not participate in Therapy's adventures. She holds the space that makes the adventures survivable.

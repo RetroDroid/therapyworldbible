@@ -14,7 +14,7 @@ Privacy and Wren's coordination was improvised and effective: Michelle's forcefi
 
 Diana's later collaboration with Sarah Florence (Twilight) was more calculated. The campaign against Majo Majima required Diana's mind control to function as a delivery mechanism for something Sarah provided — the genuine shape of Abigail Rodriguez's grief, necromantically assembled, handed off to Diana to direct. Diana understood what they were building. She built it precisely. The Abigail-shaped thing that Majo experienced during that period was calibrated to Majo's specific love, and Diana did the calibration.
 
-She also brought Alexander Randall (Lectric) into the alliance. Whether she trusts him is a question she has probably not asked herself, because trust is the kind of consideration that operates on a longer timeline than Diana typically works with.
+She also brought Alexander Poe (Lectric) into the alliance. Whether she trusts him is a question she has probably not asked herself, because trust is the kind of consideration that operates on a longer timeline than Diana typically works with.
 
 She is not in therapy. She has been approached. She has declined.
 

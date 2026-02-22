@@ -34,9 +34,9 @@ Everyone else survived, in the technical sense of the word — they were alive w
 
 ---
 
-## Alexander Randall (Lectric)
+## Alexander Poe (Lectric)
 
-Alexander Randall (Lectric) was not in either car. He was, according to his own account, driving behind Michelle's car and stopped when he saw the collision. He was exposed to Quantum Spin Liquid through contact with the road surface while approaching the scene. He is the last person documented to have developed powers from the Crash. The mechanism of his exposure is the most disputed element of any survivor's account — most of the compound was concentrated at the point of impact, and the distance he claims to have been standing from it is inconsistent with the exposure he would have needed. Nobody has been able to prove anything. Lectric has not volunteered clarification.
+Alexander Poe (Lectric) was not in either car. He was, according to his own account, driving behind Michelle's car and stopped when he saw the collision. He was exposed to Quantum Spin Liquid through contact with the road surface while approaching the scene. He is the last person documented to have developed powers from the Crash. The mechanism of his exposure is the most disputed element of any survivor's account — most of the compound was concentrated at the point of impact, and the distance he claims to have been standing from it is inconsistent with the exposure he would have needed. Nobody has been able to prove anything. Lectric has not volunteered clarification.
 
 ---
 
